@@ -21,7 +21,7 @@
 
 - 💬 Ask me about **Website Design, Development & Social Media Marketing**
 
-- 📫 How to reach me **contact@rezwanulbari.com/**
+- 📫 How to reach me **contact@rezwanulbari.com**
 
 - 📄 Know about my experiences [https://rezwanulbari.com/](https://rezwanulbari.com/)
 
